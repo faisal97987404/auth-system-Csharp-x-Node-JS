@@ -1,1 +1,1 @@
-# full sEtup video : https://youtu.be/uKOjkaf522U
+# full sEtup 
